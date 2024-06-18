@@ -2,7 +2,7 @@
 - 👀 I’m interested in Computational approach in studying HEALTH sciences via DRY and WET laboratory methods..
 - 🌱 I’m currently learning Molecular medicine techniques for drug THERAPEUTICS & Precision medicine  development where i used to apply bioinformatics tools and computational genomics methods. .
 - 💞️ I’m looking to collaborate on ... Artificial INTELIGENCE & Machine Learning approach with PROJECT for Neurobiology and reproductive pathophysiology along with STEM cell application...
-- 📫 How to reach me ...via +916387292494,www.linkedin.com/in/harshit-upadhyay-a20941253,
+- 📫 How to reach me ...via +916387292494,www.linkedin.com/in/www.linkedin.com/in/uharshit9,
 - 😄 Pronouns: ...cherru
 - ⚡ Fun fact: ...
 
